@@ -1,3 +1,3 @@
-# Torsdagsopgave-1
+# Torsdagsopgave-0
 Carl Emil Køhn
 cph-ck381@cphbusiness.dk
